@@ -1,4 +1,4 @@
-im just a vidio jame lover : / why does this STUPID app bother me I JUST wanna do crazy cool and awesome things : /
+i run a dog fighting ring in my free time
 
 <!---
 huellasiscool/huellasiscool is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
